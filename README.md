@@ -1,1 +1,0 @@
-# EarlPlacido.github.io
